@@ -36,7 +36,7 @@ I enjoy turning ideas into interactive and visually appealing web experiences wh
 ## 📬 Contact
 - GitHub: [kingkyc-Dev](https://github.com/kingkyc-Dev)  
 - Email: mirekupethuellarweh@gmail.com
-- (Optional: LinkedIn or Twitter link if you have one)  
+-  LinkedIn:http://gh.linkedin.com/in/pethuel-larweh-mireku-bb07b2258)  
 
 ---
 
